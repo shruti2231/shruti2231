@@ -8,7 +8,7 @@
 
 😄 Pronouns: She/Her
 
-⚡ Fun fact: When I'm not diving into data, I enjoy singing and exploring different creatuve activities.
+⚡ Fun fact: When I'm not diving into data, I enjoy singing and exploring different creative activities.
 
 <!---
 shruti2231/shruti2231 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
